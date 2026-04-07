@@ -54,4 +54,4 @@ We may update this privacy policy from time to time. Changes will be reflected i
 
 If you have questions about this privacy policy, contact us at:
 
-filmtrackerapphelp@gmail.com
+filmtrackerapphelp@lastlivingsoulco.com
